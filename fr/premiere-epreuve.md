@@ -1,3 +1,1 @@
-Bonjour mon cher amis. Tu es sur ce site web pour sauver noël. Je vais tout te raconter depuis le début.
-C'était il y a très longtemps.
-
+Bonjour. Je me nomme 101dal et je suis le créateur de cette chose.
