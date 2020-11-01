@@ -1,1 +1,0 @@
-Bonjour. Je me nomme 101dal et je suis le créateur de cette chose.
